@@ -10,5 +10,6 @@ Beyond my professional pursuits, I am an avid enthusiast of technology, constant
 
 I am eager to contribute my expertise and enthusiasm to the corporate landscape, and I look forward to potentially collaborating with esteemed professionals such as yourself.
 
+for more detail checkout my portfolio live website .
 
 
