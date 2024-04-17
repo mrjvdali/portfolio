@@ -1,4 +1,4 @@
-# portfolio
+# PORTFOLIO
 Hey
 Welcome to my portfolio
 Myself, Javed Ali, a professional with a background in technology and a passion for continuous learning and growth.
